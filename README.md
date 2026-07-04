@@ -153,7 +153,7 @@ On the same WiFi network, access the app using:
 
 ## 📞 Contact Information
 
-- **Phone**: +91 8186948796, 8688246713
+- **Phone**: +91 772536653, 9989689924
 - **Email**: chandu54655@gmail.com
 - **Location**: Hyderabad, Dammaiguda, India
 
