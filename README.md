@@ -153,8 +153,8 @@ On the same WiFi network, access the app using:
 
 ## 📞 Contact Information
 
-- **Phone**: +91 7702536653, 9989689924
-- **Email**: srivenkateshwaracatering@gmail.com
+- **Phone**: +91 8186948796, 8688246713
+- **Email**: chandu54655@gmail.com
 - **Location**: Hyderabad, Dammaiguda, India
 
 ## 📄 License
